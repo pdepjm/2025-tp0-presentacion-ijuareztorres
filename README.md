@@ -8,4 +8,4 @@ Me gustan los deportes, más que nada el fútbol. Soy del Club Atletico Boca Jun
 Adjunto una foto con mis amigos de secundaria, soy el de arriba a la derecha.
 ![Imagen](https://github.com/user-attachments/assets/b967d4a6-bdba-4722-a535-a54e03cfb881)
 ___
-![Imagen](https://www.google.com/url?sa=i&url=https%3A%2F%2Fes.wikipedia.org%2Fwiki%2FIslas_Malvinas&psig=AOvVaw0Wxa2Hea9weNX6yXOIHt2q&ust=1743695755848000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMiW9IbbuYwDFQAAAAAdAAAAABAK)
+![Imagen](https://github.com/user-attachments/assets/4c155df0-bf85-44df-8f39-201fc2ad55a3)
